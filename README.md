@@ -1,7 +1,7 @@
 ### Oie eu sou a Fran ❤
 
 
-- 🔭 hoje estou trabalhando como consultora financeira.
+- 🔭 hoje estou trabalhando como Analista financeira.
 - 🌱 comecei estudar programação e estou amando🥰
 
 <div align="center">
